@@ -1,6 +1,6 @@
 
 # Tony’s Ultimate Japan Guide #
-I made this guide for my dear friends who are traveling to Japan and would like to go to the places I loved to go. Let me know if you want to know about anything else, or if you want to hang out with some of my Japanese friends while you're there. They would love to meet you guys.
+I made this guide for my dear friends who are traveling to Japan and would like to go to the places I loved to go. Let me know if you want to know about anything else, or if you want to hang out with some of my Japanese friends while you're there. They would love to meet you guys!!
 ---
 
 ## Tips and Tricks
