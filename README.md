@@ -1,8 +1,7 @@
 
 # Tony’s Ultimate Japan Guide #
 
-I made this guide for my dear friends who are traveling to Japan and would like to go to the places I loved to go. Although not fully comprehensive, my one year in Japan gave me an eye for restaurants, shops, and experiences that are built for tourists vs. experiences that give you the real deal experience.
-
+I made this guide for my dear friends who are traveling to Japan and would like to go to the places I loved to go. 
 ---
 
 ## Tips and Tricks
