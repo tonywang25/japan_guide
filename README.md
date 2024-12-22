@@ -1,6 +1,5 @@
 
 # Tony’s Ultimate Japan Guide #
-
 I made this guide for my dear friends who are traveling to Japan and would like to go to the places I loved to go. 
 ---
 
