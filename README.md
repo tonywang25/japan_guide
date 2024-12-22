@@ -234,16 +234,16 @@ I made this guide for my dear friends who are traveling to Japan and would like 
 
 ## Day Trip / Two-Day Trip Recommendations
 
-### Kamakura / Enoshima
+### Kamakura / Enoshima (from Tokyo)
 - Loved by friends for its hiking trails and gorgeous foliage.  
 - Features a famous anime landmark.  
 
-### Yokohama
+### Yokohama (from Tokyo)
 - **Favorite day-trip spot near Tokyo:**  
   - A proper port city with nostalgic nighttime views.  
   - Visit Chinatown, Yamashita Park (for live events), Manyo Club (onsen), and Sankeien Garden.  
 
-### Hakone
+### Hakone (from Tokyo)
 - A **hot spring resort area** with stunning views of Mt. Fuji.  
 - Sights to visit:  
   - Hakone Shrine.  
@@ -254,12 +254,12 @@ I made this guide for my dear friends who are traveling to Japan and would like 
   
 I probably want to get married here— it’s that beautiful.  
 
-### Nagoya
+### Nagoya (from Osaka/Kyoto)
 - **Charming city:**  
   - Nighttime views reminiscent of Yokohama.  
   - Kansai region food is hearty and delicious.  
 - **Nearby Gifu:** Visit for artisan-crafted culinary knives.  
 
-### Nara
+### Nara (from Osaka/Kyoto)
 - Famous for its friendly deer, but also beautiful nature and architecture.  
 - **Feels like Spirited Away in real life.** Highly recommend!
